@@ -19,3 +19,5 @@ You can find all the links to the websites we have made below:
 [Icon Billing](http://iconbilling.com/)
 
 [Syed Pro](http://syedpro.com/)
+
+[The Guide](https://theguide.live/)
