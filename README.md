@@ -9,3 +9,7 @@ You can find all the links to the websites we have made below:
 [Black Circle Studio](https://blackcirclestudio.com/?action=ppw_postpass)
 
 [Chelsea Models International](https://chelseamodelsinternational.com/)
+
+[Cheetah Mind AI](https://cheetahmindai.com/)
+
+[Remote Expert Solution](https://remotexpertsolutions.com/)
