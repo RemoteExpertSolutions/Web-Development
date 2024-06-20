@@ -13,3 +13,9 @@ You can find all the links to the websites we have made below:
 [Cheetah Mind AI](https://cheetahmindai.com/)
 
 [Remote Expert Solution](https://remotexpertsolutions.com/)
+
+[Creative Solutions Usainc](http://creativesolutionsusainc.com/)
+
+[Icon Billing](http://iconbilling.com/)
+
+[Syed Pro](http://syedpro.com/)
